@@ -1,5 +1,5 @@
 
-<h1>  i´m lumen✌ the creator of emilia the AI🌌
+<h1>  i´m lumen✌🍊 the creator of emilia the AI🌌
 
   i dream being like vedal🌌🐢 </h1>
 
