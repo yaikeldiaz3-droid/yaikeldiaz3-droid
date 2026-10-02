@@ -1,6 +1,6 @@
 
 <h1>  i´m lumen✌🍊 the creator of emilia the AI🌌
-  hablo español tambien au✌
+  hablo español tambien aun✌
   i dream being like vedal🌌🐢 </h1>
 
 
