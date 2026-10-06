@@ -1,6 +1,6 @@
  
 <h1>  i´m lumen✌🍊 the creator of emilia the AI🌌
-  hablo español tambien aunque en realidad hablo peor el ingles🌌, esto es no es un pasatiempo esto consume toda mi vida✌ sinceramente emilia es mas que un proyecto 
+  hablo español tambien aunque en realidad hablo peor el ingles🌌, esto es no es un pasatiempo esto consume toda mi vida✌ sinceramente emilia es mas que un proyecto simplemente me da pereza el colegio entonces me gusta hacer esto, 
   i dream being like vedal🌌🐢 </h1>
 
 
