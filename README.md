@@ -1,6 +1,6 @@
  
 <h1>  i´m lumen✌🍊 the creator of emilia the AI🌌
-  hablo español tambien aunque en realidad hablo peor el ingles🌌, esto es no es un pasatiempo esto consume toda mi vida✌ sinceramente emilia es mas que un proyecto simplemente me da pereza el colegio entonces me gusta hacer esto, ya mas bien tomo el colegio un hobbie,me gusta mucho lo que conlleva el proyecto de neuro sama, tambien siempre me gusto esto de la inteligencia artificial, agradezco de verdad a vedal por enseñarme sobre este mundo, osea sin lo que conlleva a neuro sama no se que estaria haciendo con mi vida
+  hablo español tambien aunque en realidad hablo peor el ingles🌌, esto es no es un pasatiempo esto consume toda mi vida✌ sinceramente emilia es mas que un proyecto simplemente me da pereza el colegio entonces me gusta hacer esto, ya mas bien tomo el colegio un hobbie,me gusta mucho lo que conlleva el proyecto de neuro sama, tambien siempre me gusto esto de la inteligencia artificial, agradezco de verdad a vedal por enseñarme sobre este mundo, osea sin lo que conlleva a neuro sama no se que estaria haciendo con mi vida ya que no lo he dicho soy de costa rica
 
   i dream being like vedal🌌🐢 </h1>
 
