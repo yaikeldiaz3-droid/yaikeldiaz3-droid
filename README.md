@@ -31,7 +31,7 @@ Inspired by the technical depth behind *Neuro-sama*, **Emilia** is a local, modu
 ---
 
 ### 🌐 Links & Ecosystem
-* 📝 **Emilia's Autonomous Blog:** [yaikeldiaz3-droid.github.io/emilia-blog](https://github.io)
+* 📝 **Emilia's Autonomous Blog:** [ https://yaikeldiaz3-droid.github.io/emilia-blog/)
 * 🎥 **TikTok:** [@lumen3_llm](https://tiktok.com)
 * 💬 **Discord:** `lumen3_llm`
 
